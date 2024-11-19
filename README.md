@@ -6,7 +6,7 @@ $\color{purple}{\textsf{best view in dark mode!}}$
   ![1000001853](https://github.com/user-attachments/assets/d3004da8-7477-4e83-a10a-a870a77c8749)
 
 
-# [. . . strawpage](https://teamrabbit.straw.page)    &    [atabook . . .](https://teamrabi.atabook.org/)
+# [. . . strawpage](https://anrope.straw.page)    &    [atabook . . .](https://teamrabi.atabook.org/)
 
 ![1000001852](https://github.com/user-attachments/assets/8e3f3553-151a-44ab-aeca-f2ca80812000)
 ㅤ

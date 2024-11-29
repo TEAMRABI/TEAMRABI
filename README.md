@@ -19,3 +19,6 @@ $\color{purple}{\textsf{retrieve CD from the}}$
 #     $\textcolor{violet}{\textsf{SEWING CLUB}}$
 
 ![1000001860](https://github.com/user-attachments/assets/0d1d9180-8958-43bd-b73e-fa7f0ffb8653)
+
+
+$\color{violet}{\textsf{note : I'm 99% alone sooo.. HEY COME C+H IT ALWAYS MAKES ME HAPPY}}$

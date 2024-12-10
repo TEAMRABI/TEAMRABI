@@ -6,7 +6,7 @@ $\color{purple}{\textsf{best view in dark mode!}}$
   ![1000001853](https://github.com/user-attachments/assets/d3004da8-7477-4e83-a10a-a870a77c8749)
 
 
-# [. . . strawpage](https://anrope.straw.page)    ,    [atabook . . .](https://teamrabi.atabook.org/)     &     [Color my tree. . . ](https://colormytree.me/2024/01JE1YJBSGVS2RQX5RC89SE4T0)
+# [. . . strawpage](https://anrope.straw.page)    ,    [atabook . . .](https://teamrabi.atabook.org/)   ,    [Color my tree. . . ](https://colormytree.me/2024/01JE1YJBSGVS2RQX5RC89SE4T0)  &   [. . . TWITTER/X](https://x.com/unamedALAN?t=65cVu9THjmuUFDG1MrlQmg&s=09)
 
 ![1000001852](https://github.com/user-attachments/assets/8e3f3553-151a-44ab-aeca-f2ca80812000)
 ㅤ
